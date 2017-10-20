@@ -1,0 +1,2 @@
+# OTAKU_FEDIDO
+discord
